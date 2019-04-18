@@ -1,2 +1,2 @@
 # Demo-1
-Asallam O Alikum
+Asallam o Alikum
